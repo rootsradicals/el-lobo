@@ -1,0 +1,1 @@
+Ella  acudió a los  conocimientos que tenía para sobrevivir,  aprendidos de sus  ancestros ya difuntos  y accedió por el camino de la supervivencia y siendo una niña se  convirtió en una ermitaña  que aun con el básico  conocimiento, tenía mucho por aprender con respecto a las intenciones de  otros.
