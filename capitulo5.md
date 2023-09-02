@@ -1,0 +1,1 @@
+Caperucita desperto y sintio una sensacion extraña  se sintió observada y siguio su camino.  camino  durante un rato, pero su sensación perduraba  y  volteaba   cada vez mas seguido a  mirar a tras  pues sentia  el peligro cada vez mas cerca. a de ser  ese hongo extraño penso   y se calmo un poco encontrando explicacion en lo tangible 
